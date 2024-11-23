@@ -4,7 +4,7 @@
 Plant genetics, Ph.D
 
 ## Work Experience
-Post doctoral Research Scientist
+Postdoctoral Research Scientist
 
 ## Projects
 
